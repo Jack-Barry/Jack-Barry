@@ -1,4 +1,4 @@
-### Hi there 👋
+Don't judge me for my over abundance or lack of contributions
 
 <img src="https://media.giphy.com/media/1173nY1MQdqOOs/giphy.gif" />
 
