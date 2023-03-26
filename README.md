@@ -1,4 +1,4 @@
-Don't judge me for my over abundance or lack of contributions
+Don't judge me for the amount of my contributions
 
 <img src="https://media.giphy.com/media/1173nY1MQdqOOs/giphy.gif" />
 
